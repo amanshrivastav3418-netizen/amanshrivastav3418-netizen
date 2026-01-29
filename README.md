@@ -1,5 +1,6 @@
 **# 💫 About Me:
-i am currently student of 3rd year bca in Delhi skill and entrepreunership university delhi <br>i am currently looking for the jobs and  internship
+i am currently student of 3rd year BCA in Delhi Skill and Entrepreunership University Delhi
+<br>i am currently looking for the jobs and  internship
 
 
 ## 🌐 Socials:
